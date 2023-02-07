@@ -57,7 +57,7 @@ Do not buy an overpriced script for 4 eth and more..
 
 #My price Only 2 Eth
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+# To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
 #To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
