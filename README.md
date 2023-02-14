@@ -47,7 +47,7 @@ This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 ![walletconnect1](https://user-images.githubusercontent.com/112655030/215937337-84def8be-e7e0-4d8f-b992-407c68bd84c7.png)
 ![Walletconnect2](https://user-images.githubusercontent.com/112655030/215937429-ca0db0ce-aabc-40c8-a8a1-328bf47bc18d.png)
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+# To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
 NO RED SCREEN
 
@@ -83,4 +83,4 @@ Also,I will provide info about obsec, hosting, marketing and more..
 
 Please do not text me if you are not ready to test and buy!
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+# To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
