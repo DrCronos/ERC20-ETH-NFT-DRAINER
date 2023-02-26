@@ -4,6 +4,7 @@ So many fake scripts on git. So i drop a premium one for sale!
 This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 
 #To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+
 ![dash](https://user-images.githubusercontent.com/112655030/215937299-20ab8db9-0744-42ec-bc2e-4c81d4325dc4.png)
 
 
@@ -43,11 +44,8 @@ This premium drainer script will drain all tokens on ERC20, all NFTs and Eth
 
 🔥 - EASY PROFIT TO BE MADE RIGHT NOW WITH THIS NEW DRAINER!>>
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 ![walletconnect1](https://user-images.githubusercontent.com/112655030/215937337-84def8be-e7e0-4d8f-b992-407c68bd84c7.png)
 ![Walletconnect2](https://user-images.githubusercontent.com/112655030/215937429-ca0db0ce-aabc-40c8-a8a1-328bf47bc18d.png)
-
-# To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
 NO RED SCREEN
 
@@ -59,7 +57,6 @@ Do not buy an overpriced script for 4 eth and more..
 
 # To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
-#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
 
 95% of sellers are reseller or scammer!
 
