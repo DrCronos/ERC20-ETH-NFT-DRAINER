@@ -80,4 +80,7 @@ Also,I will provide info about obsec, hosting, marketing and more..
 
 Please do not text me if you are not ready to test and buy!.
 
-# To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+#To purchase the script and get more info contact me on telegram: https://t.me/cronos1402
+
+#  The developer does not support any kind of Illegal activities.
+
